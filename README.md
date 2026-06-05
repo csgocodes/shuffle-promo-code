@@ -6,7 +6,7 @@ Looking for a Shuffle promo code? Whether you're creating a new account or explo
 * **FREEBENEFIT** - [Activate Code to Get instant 100% Deposit Bonus](https://shuffle.com?r=freebenefit)
 * **FREEREWARDS** - [Activate Code to Get instant 100% Deposit Bonus](https://shuffle.com?r=freerewards)
 
-
+![shuffle promo code](https://github.com/user-attachments/assets/3d811309-bb98-442f-abee-f9c5fdecb0b7)
 
 ## What Is Shuffle Promo Code?
 
@@ -66,6 +66,8 @@ Shuffle also runs a referral program that allows players to earn rewards by invi
 Each user receives a unique referral code that can be shared with others. When someone signs up using your code and meets the required conditions, you'll receive a referral bonus.
 
 Keep in mind that referral rewards can differ from one region to another. Checking the latest promotional materials on the site is the best way to see what referral incentives are currently available in your area.
+
+![shuffle level up promotion](https://github.com/user-attachments/assets/a48a5f6e-be8a-48f6-b7f4-7573d8430966)
 
 ## Level Up Rewards
 
